@@ -1,0 +1,1 @@
+i'm monkey d luffyim gonna become king of the piratesim gonna become king of the pirates im gonna become king of the pirates/n im gonna become king of the pirates
